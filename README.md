@@ -1,2 +1,2 @@
 # hello-world
-thanks god that created human with knowledge and desire, though those the one that drift them from heaven.
+thank god that created humans with knowledge and desire, although those are the very things that drift them from the heaven.
